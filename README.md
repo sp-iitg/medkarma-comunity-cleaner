@@ -1,0 +1,1 @@
+# medkarma-comunity-cleaner
